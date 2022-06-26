@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Sultan
+- 👀 I’m interested in software engineering
+- 🌱 I’m currently learning I don't want to share
+- 💞️ I’m looking to collaborate on I don't want to share
+- 📫 How to reach me my email is sultanishaq@outook.com 
+- 
